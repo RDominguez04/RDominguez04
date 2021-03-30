@@ -1,0 +1,5 @@
+- 👋 Hi I'm Roy, I like to tinker an come up with smaller problems to my bigger problems
+- 👀 I’m interested in not dying in the 50 years, cross my fingers!
+- 🌱 I’m currently learning how to human
+- 💞️ I’m looking to collaborate on litterally every aspect of my life. Team work makes the dream work
+- 📫 How to reach me - you can probably email me at roy@dominguez.tech or just look for me on linkedin, I don't use it that often so just pull my contact information from there
